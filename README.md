@@ -1,17 +1,12 @@
- <img width="200" alt="image" src="https://github.com/user-attachments/assets/882c40f0-3819-406b-81ea-1e3ba62fb54f" />
+   ⤷        @ starr.      ᛝ
 
-........................
+   𓍼     :  dnc any of my skins!  𝄞
 
-🍓 - 5teen
+              𓂃 𓈒𓏸    
+        ◞  this user 𑁤' s ..
 
- ⊱┊  she/her    ·˚ ༘ starr
+     ✄┈┈┈┈ Noah  Beery  Jr.☕ ┈┈┈┈
+![image](https://github.com/user-attachments/assets/c4ba22ff-e6e8-437c-8153-e1cca042c52e)
+![image](https://github.com/user-attachments/assets/89c28e4d-226b-4e24-988e-ca9cf0914c55)
 
-💌 - dont copy my designs ! ty <3
-
-𓈒    ゛ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 𓂅 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ₊ ‎ ‎ ‎ ‎ ‎ ‎ ‎⠀⠀⎯⎯⠀⠀ ♬᭢
-
-<img width="120" alt="image" src="https://github.com/user-attachments/assets/5830a6b9-eac2-4cc0-9f78-77d510128ec5" />
-
-<img width="30" alt="image" src="https://github.com/user-attachments/assets/dff9fdc9-1e23-446d-9bd9-c8198437739c" /> . .
-
-........................
+     ༝༚༝༚   𓂃
