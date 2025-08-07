@@ -1,8 +1,7 @@
 
-   ⤷        @ starr.      ᛝ
+   ⤷  ⠀ ⠀ ⠀ ⠀    @ starr.  ⠀ ⠀ ⠀ ⠀ ⠀    ᛝ
 
    𓍼     :  dnc any of my skins!  𝄞
-
               𓂃 𓈒𓏸    
         ◞  this user 𑁤' s ..
 
