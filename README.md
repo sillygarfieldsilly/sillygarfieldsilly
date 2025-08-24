@@ -1,6 +1,6 @@
 ![image](https://64.media.tumblr.com/5bf9bd3177466f4498b9e2a7b100b272/a1a77bffd0c648f8-d5/s1280x1920/2bcf7ccf79e09e17f757b117a2c7708525635979.pnj)
-![image](https://64.media.tumblr.com/ba256fb0343231b733582faee99cac69/717ade9cdc988b8c-8a/s1280x1920/a032989a5e3668b5756af67bcdcd7113bc881982.pnj)
- ⠀ ⠀ ⠀  ⠀  ⠀⠀⠀ ⠀![](https://komarev.com/ghpvc/?username=sillygarfieldsilly&color=dcc1af)
+![image](https://64.media.tumblr.com/ba256fb0343231b733582faee99cac69/717ade9cdc988b8c-8a/s1280x1920/a032989a5e3668b5756af67bcdcd7113bc881982.pnj) ⠀
+⠀ ⠀  ⠀⠀  ⠀  ⠀⠀ ⠀![](https://komarev.com/ghpvc/?username=sillygarfieldsilly&color=dcc1af&label=┊˚◌  ) ◌
 
  ⠀ ⠀ ⠀    ⤷  ⠀ ⠀ ⠀ ⠀    @ Sƚαɾɾ.  ⠀ ⠀ ⠀ ⠀ ⠀    ᛝ
 
