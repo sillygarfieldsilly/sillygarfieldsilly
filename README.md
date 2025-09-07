@@ -1,6 +1,6 @@
 
 ⠀ ⠀  ⠀⠀  ⠀  <p align="center">![](https://komarev.com/ghpvc/?username=sillygarfieldsilly&color=dcc1af&label=┊˚◌  ) ◌
-![](https://44.media.tumblr.com/d31edca7ba7ee50f2d0e05c02f4d7653/18099037734c6cf9-7e/s1280x1920_f1/915d4be72eeb7a0bc2438dc7f4f10db588610e57.gifv)
+![](https://cdn.discordapp.com/attachments/1396183441464230019/1414064947910021192/IMG_3765.gif?ex=68be361b&is=68bce49b&hm=533772d0d0cc3c1b2da45e1d72db0b534e91abc0e6afda0917f4840436082f7d&)
  ⠀<p align="center">⤷  ⠀ ⠀ ⠀ ⠀    @ Sƚαɾɾ.  ⠀ ⠀ ⠀ ⠀ ⠀    ᛝ
 
  <p align="center">𓍼   ⠀ ⠀ ⠀    :  ᵈⁿᶜ ᵃⁿʸ ᵒᶠ ᵐʸ ˢᵏⁱⁿˢ! ⠀ ⠀ ⠀   𝄞
