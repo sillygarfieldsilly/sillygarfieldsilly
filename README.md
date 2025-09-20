@@ -10,3 +10,5 @@
 
 <h6 align="center">
 ࣪⠀ ִ‎   ۫   ּ  ֗  ִ  ‎ ‎   ۪ ‎ ‎ ‎  ⠀̥̾͒‎  ‎ ‎  ‎  ‎          🐏 ۫  ‎ .‎  ㅤ҉ ⃘᰷᰷ི‎  𓏶       ‎       ི ۪‎    ִ     ֗ ִ ۫‎    ִ‎ ‎   ‎ ‎    ࣪  
+
+🤍 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=nc2xu7jzn4t26bh1k2ljmaeky&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
