@@ -7,3 +7,5 @@
 
  <h6 align="center">
  𝗌𝗁𝖾   ‎ ‎  /  ‎ ‎   𝗁𝖾𝗋
+
+![image](https://cdn.discordapp.com/attachments/1394835939809034320/1419006137499390143/IMG_4055.gif?ex=68d02ff3&is=68cede73&hm=76f70d2a4008283fbaebf7d2b715b1ea6f4a38d2044421f075d3a01182c9fa27&)
