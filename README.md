@@ -8,4 +8,4 @@
  <h6 align="center">
  𝗌𝗁𝖾   ‎ ‎  /  ‎ ‎   𝗁𝖾𝗋
 
-![image](https://cdn.discordapp.com/attachments/1394835939809034320/1419006137499390143/IMG_4055.gif?ex=68d02ff3&is=68cede73&hm=76f70d2a4008283fbaebf7d2b715b1ea6f4a38d2044421f075d3a01182c9fa27&)
+![image](https://64.media.tumblr.com/61a963e3d08ccdf45135c3d13e5dadda/c7037c18acf07edb-af/s1280x1920/25e1d405cd818c606b8a4d9c37352d95b97dbf11.gifv)
